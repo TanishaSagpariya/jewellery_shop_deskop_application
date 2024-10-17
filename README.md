@@ -1,0 +1,1 @@
+# jewellery_shop_deskop_application
